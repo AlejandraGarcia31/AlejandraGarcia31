@@ -1,4 +1,4 @@
-### Hi 👋, I'm Alejandra Garcia 
+### Hi 👋, I'm Alejandra García 
 I'm Student Chemical Engineering
 - 🔭 I’m currently studing in the University EAN
 - 👯 I like to go out with my friends, dance, watch series, listen to music, etc.
